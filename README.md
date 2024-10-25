@@ -5,7 +5,7 @@
 
 - 👨‍💻 All of my projects are available at [https://solomonparthi.netlify.app/](https://solomonparthi.netlify.app/)
 
-- 📫 How to reach me **solomonfranklin60@gmail.com**
+- 📫 How to reach me **solomonfranklin600@gmail.com**
 
 - 📄 Know about my experiences [https://drive.google.com/file/d/1kqSRvCGpycaY5l7H3vUFe3prj9sWB3g8/view?usp=sharing](https://drive.google.com/file/d/1kqSRvCGpycaY5l7H3vUFe3prj9sWB3g8/view?usp=sharing)
 
